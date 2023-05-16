@@ -1,4 +1,4 @@
-# **http://www.copyright.gov/onlinesp/** PRIVACY POLICY
+# **DENNIS DUONG** PRIVACY POLICY
 
 Last Revised: **2023-05-16**
 
